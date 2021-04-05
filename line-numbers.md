@@ -17,7 +17,8 @@
 #### 9 Github is really awesome.
 
 #### 10
-#### 11
+#### 11 IDE can sometimes be hard to use
+
 #### 12
 #### 13
 #### 14
