@@ -6,9 +6,7 @@ Alice was here!
 #### 3 Jan wrote this
 
 #### 4
-
-#### 5 Jan also wrote this
-
+#### 5
 #### 6
 #### 7
 #### 8
