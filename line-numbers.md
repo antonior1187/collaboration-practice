@@ -18,9 +18,9 @@
 
 #### 10
 
-#### 11 IDE can sometimes be hard to use and  have no idea what to write. 
+#### 11 IDE can sometimes be hard to use and i have no idea what to write. 
 
 #### 12
-#### 13
+#### 13 Easter just passed.
 #### 14
 #### 15
