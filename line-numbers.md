@@ -6,7 +6,7 @@
 
 #### 4
 
-#### 5 Jan also wrote this\
+#### 5 Jan also wrote this
 
 #### 6
 
